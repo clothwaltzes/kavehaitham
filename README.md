@@ -6,7 +6,7 @@ we don't have to agree on everything i like! as long as you dont avidly dislike 
 
 games . . . enstars, genshin, hsr, idv
 
-characters . . . es - valkyrie, switch, nazuna / gi - tartaglia, kaveh, furina / hsr - blade, aventurine, fu xuan, sunday / idv - edgar, victor, aesop
+characters . . . es - valkyrie, switch, nazuna / gi - tartaglia, kaveh, furina, albedo / hsr - blade, aventurine, fu xuan, sunday / idv - edgar, victor, aesop
 
 ships . . . es - shumika, shunazu, natsumugi, eiwata / gi - zhongchi, haikaveh / hsr - jingfu, aventio, galladay / idv - edluca
 
