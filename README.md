@@ -1,4 +1,4 @@
-hi!! im @clothwaltzes / @kavehaithem, this is linked to my pt account, so i made this to try and find friends.
+hi!! im @clothwaltzes / @kavehaitham, this is linked to my pt account, so i made this to try and find friends.
 
 i am 19, almost 20 (8/14) !!! - i would prefer if anyone looking to be friends is **at very least 16+**
 
